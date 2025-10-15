@@ -1,2 +1,2 @@
 # Titikshya
-Projects completed un going upcoming
+Projects completed, un going, upcoming
